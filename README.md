@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @stephenpower2003
-- 👀 I’m interested in ... programming and motorsport technology
+- 👀 I’m interested in ... Programming and Automotive technology
 - 🌱 I’m currently studying ... Applied Computing in Waterford Institute of Technology
 - 📫 How to reach me ... stephenepower03@gmail.com
 
